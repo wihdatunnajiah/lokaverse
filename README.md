@@ -2,7 +2,11 @@
 
 ANGGOTA : Umi Kalsum - 220907500013
 
-          Wihdatunnajiah - 220907500012
+           Wihdatunnajiah - 220907500012
+
+           Adrian Rifaldi - 220907502059
+
+           M Aditya Pahlevi Syawal - 220907502053
 
 
 
