@@ -8,6 +8,10 @@ ANGGOTA : Umi Kalsum - 220907500013
 
            M Aditya Pahlevi Syawal - 220907502053
 
+           Nabiqa Azzahra Antawirya - 220907501025
+
+           Ivhana Julia Andila - 220907502064
+
 
 
 <br>
